@@ -3,7 +3,7 @@
 
 
 ✨Hello! I'm [Taylor](https://github.com/TaylorIsBlue)/[@TaylorIsblue](https://github.com/TaylorIsBlue)!
-😁I'm a developer for the Minecraft server Bendcraft and a developer for AwkwardBot!
+😁I'm a developer for the Minecraft server at G3 Network and a developer for AwkwardBot!
 😊 My favourite shows are Greys Anatomy, The Flash, Arrow, Station 19, EHC.
 🏳‍🌈 LGBTQ+ Supporter! 
 🌹 Have a good day!!
